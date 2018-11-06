@@ -3,7 +3,7 @@ layout: post
 title: what is vine
 ---
 
-![blog header](/images/blog-letters.jpg)
+![blog header](/images/1200px-Vine_wordmark.svg.png)
 
 vine was an app used to upload short videos.
 
