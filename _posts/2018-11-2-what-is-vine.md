@@ -1,2 +1,8 @@
-![vine logo](/vinelogo.jpg)
-vine is an app that allowed people to create short second videos to post.
+---
+layout: post
+title: Add a Post With An Image
+---
+
+![blog header](/images/blog-letters.jpg)
+
+vine was an app used to upload short videos.
