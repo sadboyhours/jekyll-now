@@ -3,7 +3,7 @@ layout: post
 title: what is vine
 ---
 
-![blog header](/images/ripvine.png)
+![blog header](/images/ripvine2.png)
 
 lmao as you can tell this app is dead but whatever, 
 
