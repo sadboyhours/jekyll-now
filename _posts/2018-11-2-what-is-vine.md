@@ -1,6 +1,6 @@
 ---
 layout: post
-title: # what is vine
+title: what is vine
 ---
 
 ![blog header](/images/1200px-Vine_wordmark.svg.png)
