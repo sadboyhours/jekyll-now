@@ -17,7 +17,8 @@ if your to lazy let me explain
 
 man driving camera on him. a road work sign passes.  
 
-the man says "road work ahead, uh yeah. i sure hope it does." it so stupid and simple that people now reference it. [roadworkahead](/images/roadworkahead.jpg)
+the man says "road work ahead, uh yeah. i sure hope it does." it so stupid and simple that people now reference it.
+! [roadworkahead](/images/roadworkahead.png)
 
 and now lets start with some of my favorite vines
 
