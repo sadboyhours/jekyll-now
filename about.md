@@ -4,11 +4,11 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+wink wonk
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+lmao im just a sad person that shares sad stuff
 
 ### Contact me
 
