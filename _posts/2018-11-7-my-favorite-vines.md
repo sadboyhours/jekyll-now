@@ -9,6 +9,17 @@ title: My Favorite Vines
 
 ## what Makes A Good Vine?
 
-a good vine is created out of no where, its like chance. being at the right place at the right time. it has wit and shouldnt
+a good vine is created out of no where, its like chance. being at the right place at the right time. its funny becuase its so stupidly random. or the setting, maybe how the person looks. 
 
-### to start with we DO NOT number vines from first to last. it sto difficlt.
+an example would be   https://www.youtube.com/watch?v=6AYv6rV3NXE
+
+if your to lazy let me explain
+
+man driving camera on him. a road work sign passes. 
+
+the man says "road work ahead, uh yeah. i sure hope it does." it so stupid and simple that people now reference it.
+
+and now lets start with some of my favorite vines
+
+### to start with we DO NOT number vines from first to last. its to difficult and to many to choose from.
+
