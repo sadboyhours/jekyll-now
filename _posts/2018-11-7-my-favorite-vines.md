@@ -11,7 +11,7 @@ title: My Favorite Vines
 
 a good vine is created out of no where, its like chance. being at the right place at the right time. its funny becuase its so stupidly random. or the setting, maybe how the person looks. 
 
-an example would be   https://www.youtube.com/watch?v=6AYv6rV3NXE
+an example would be  https://www.youtube.com/watch?v=6AYv6rV3NXE
 
 if your to lazy let me explain
 
@@ -24,4 +24,8 @@ and now lets start with some of my favorite vines
 
 ### to start with we DO NOT number vines from first to last. its to difficult and to many to choose from.
 
-lets start with 
+lets start with "... Adam."
+
+whit eboy doing what i assume is vape gets disrupted by his firnd adam.
+
+![ADAM](/images/ADAM.png)
