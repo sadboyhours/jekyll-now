@@ -26,6 +26,6 @@ and now lets start with some of my favorite vines
 
 lets start with "... Adam."
 
-whit eboy doing what i assume is vape gets disrupted by his firnd adam.
+whit eboy doing what i assume is vape gets disrupted by his firnd--- adam.
 
 ![ADAM](/images/ADAM.png)
