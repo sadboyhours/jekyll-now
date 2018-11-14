@@ -1,6 +1,6 @@
 ---
 layout: post
-title: My Favorite Vines
+title: Something taht makes me happy - My Favorite Vines
 ---
 
 ![blog header](/images/1200px-Vine_wordmark.svg.png)
@@ -11,7 +11,7 @@ title: My Favorite Vines
 
 a good vine is created out of no where, its like chance. being at the right place at the right time. its funny becuase its so stupidly random. or the setting, maybe how the person looks. 
 
-an example would be  https://www.youtube.com/watch?v=6AYv6rV3NXE
+an example would be if you click [here](https://www.youtube.com/watch?v=6AYv6rV3NXE).
 
 if your to lazy let me explain
 
