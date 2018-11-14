@@ -36,3 +36,7 @@ white boy walking into the scene, holding phone. he says
 
 [heres the video link if you want it](https://www.youtube.com/watch?v=bs53JQTuEc0).
 
+
+![oof](/oof.png)
+
+
