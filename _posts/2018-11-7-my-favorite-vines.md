@@ -11,14 +11,12 @@ title: Something taht makes me happy - My Favorite Vines
 
 a good vine is created out of no where, its like chance. being at the right place at the right time. its funny becuase its so stupidly random. or the setting, maybe how the person looks. 
 
-an example would be if you click [here](https://www.youtube.com/watch?v=6AYv6rV3NXE).
-
-if your to lazy let me explain
-
 man driving camera on him. a road work sign passes.  
 
 the man says "road work ahead, uh yeah. i sure hope it does." it so stupid and simple that people now reference it.
 ![roadworkahead](/images/roadworkahead.png)
+
+[heres the video link if you want it](https://www.youtube.com/watch?v=6AYv6rV3NXE).
 
 and now lets start with some of my favorite vines
 
@@ -29,3 +27,12 @@ lets start with "... Adam."
 whit eboy doing what i assume is vape gets disrupted by his firnd--- adam.
 
 ![ADAM](/images/ADAM.png)
+
+then we have chili's
+
+white boy walking into the scene, holding phone. he says
+
+"hi welcome to chili's"
+
+[heres the video link if you want it](https://www.youtube.com/watch?v=bs53JQTuEc0).
+
