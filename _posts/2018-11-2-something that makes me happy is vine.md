@@ -1,6 +1,6 @@
 ---
 layout: post
-title: something that makes me happy is vine
+title: something that makes me happy - vine
 ---
 
 ![blog header](/images/ripvine2.png)
