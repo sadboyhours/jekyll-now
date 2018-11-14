@@ -9,7 +9,7 @@ title: Something that makes me happy - dogs
 
 They all come in different shapes and sizes and colors. They all are something to give love to, whether they give it back or not they make me happy. They act so stupid as puppies and really cute when they start running and playing. And when they get old they love you, forever. They act really crazy and cute when they hear their bag of treats. And i don't know why but them just existing is enough for me to be happy.
 
-if you want to make a link, you can ask your reader to click [here](https://www.website.address.com).
+if you want to see more dogs then just click [here](https://www.pexels.com/search/dogs/).
 
 ![doggies](/images/bark.png)
 
