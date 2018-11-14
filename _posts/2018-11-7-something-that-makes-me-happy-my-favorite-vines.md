@@ -39,4 +39,10 @@ white boy walking into the scene, holding phone. he says
 
 ![oof](/images/oof.png)
 
+im to lazy to name all my favorite vines so im just going to leave a link down below of some snazzy vine compilations
 
+[clean vines for your good christian minecraft server](https://www.youtube.com/watch?v=2xuNCDbC3VE).
+
+[Clean vines that keep me from ending it all](https://www.youtube.com/watch?v=-aqsOl_3AMQ)
+
+[https://www.youtube.com/watch?v=-aqsOl_3AMQ](https://www.youtube.com/watch?v=LmlQvqPS__U)
