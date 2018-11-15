@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Something taht makes me happy - My Favorite Vines
+title: Something that makes me happy - My Favorite Vines
 ---
 
 ![blog header](/images/1200px-Vine_wordmark.svg.png)
