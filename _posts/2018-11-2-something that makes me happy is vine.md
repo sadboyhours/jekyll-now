@@ -16,4 +16,4 @@ most vines were true comedy, the really rare and beautiful ones were quite a bea
 
 some werent funny, ugly faces arent funny, being awkwardly relatable wasnt as funny---talking to you lele pons and paul brothers. ill go further into detail which were A1 in the next post, or which wee my favorite. to learn more about Vine copy and paste this
 
-[here](https://en.wikipedia.org/wiki/Vine_(service)). 
+[here is a link to learn more](https://en.wikipedia.org/wiki/Vine_(service)). 
