@@ -21,14 +21,21 @@ Literally all of them through them all on me i love them all. All dogs literally
 
 Well i actually do have a favorite dog. But there's a lot and maybe it's because i know what breed they are. So let's start with my first fav dog.
 
-Pomeranian and pekingese mix
-Maltese and poodle mix
-Husky and pomeranian mix
-Pugs!
-Doberman
-Rottweiler
-Bulldogs
-And literally all of them
+!. Pomeranian and pekingese mix
+
+2. Maltese and poodle mix
+
+3. Husky and pomeranian mix
+
+4. Pugs!
+
+5. Doberman
+
+6. Rottweiler
+
+7. Bulldogs
+
+8. And literally all of them
 
 ## oof idk what to say now
 
