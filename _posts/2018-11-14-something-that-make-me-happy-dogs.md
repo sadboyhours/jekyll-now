@@ -21,7 +21,7 @@ Literally all of them through them all on me i love them all. All dogs literally
 
 Well i actually do have a favorite dog. But there's a lot and maybe it's because i know what breed they are. So let's start with my first fav dog.
 
-!. Pomeranian and pekingese mix
+1. Pomeranian and pekingese mix
 
 2. Maltese and poodle mix
 
